@@ -1,0 +1,1 @@
+A band name generator is a tool or program designed to create unique and interesting names for musical groups. It typically works by combining the name of the city in which you live and the name of the pet you have to form catchy and memorable names that reflect the style or identity of the band.
